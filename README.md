@@ -13,7 +13,6 @@
 
 - 💬 2022 goals **more blogs and technical projects**
 
-- ⚡ Fun fact **I spend almost 12 hours listening music.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
